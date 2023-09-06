@@ -12,8 +12,8 @@ You can reach me at:
 
 * GitHub: [@Gourabkarmakar](https://github.com/Gourabkarmakar)
 * Twitter: [@Gourabkarmakar](https://twitter.com/Gourabkarmakar)
-* LinkedIn: [Gourabkarmakar](https://www.linkedin.com/in/Gourabkarmakar)
-* Email: [gourabkarmakar@gmail.com](mailto:gourabkarmakar@gmail.com)
+* LinkedIn: [Gourabkarmakar](https://www.linkedin.com/in/gourab-karmakar-8128a019a/)
+* Email: [gourabkarmakar@gmail.com](mailto:gourabkarmakar297@gmail.com)
 
 ## My skills
 
